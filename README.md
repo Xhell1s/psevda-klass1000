@@ -1,0 +1,1 @@
+# psevda-klass1000
